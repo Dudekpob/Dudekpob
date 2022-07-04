@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hello friends  👋⚡
 
 <!--
 **Dudekpob/Dudekpob** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
