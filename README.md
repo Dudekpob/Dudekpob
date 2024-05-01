@@ -1,6 +1,6 @@
 ### Hello friends  👋⚡
-youtube.com/@dudekpob
-eepoldon.org
+### youtube.com/@dudekpob
+### eepoldon.org
 <!--
 **Dudekpob/Dudekpob** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
