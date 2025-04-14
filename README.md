@@ -1,4 +1,4 @@
-### Hello friends  👋⚡
+### Hello friends  👋
 ### youtube.com/@dudekpob
 ### eepoldon.org
 <!--
